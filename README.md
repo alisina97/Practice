@@ -7,7 +7,7 @@ hhihuh
    fff
     
      mmccc
-nnn
+nnnkjn
    
           j m
 kkkmmmcc
